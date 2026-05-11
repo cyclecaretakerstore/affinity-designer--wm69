@@ -1,4 +1,4 @@
-
+professional Filter for Affinity Designer for macOS - AI upscaling and auto-retouch offers the most advanced Affinity Designer for macOS filter, with AI upscaling and
 
 
 
